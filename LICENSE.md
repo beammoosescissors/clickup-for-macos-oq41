@@ -1,4 +1,4 @@
-
+professional Extension for ClickUp for macOS - multi-device sync and cloud backup is the best ClickUp for macOS extension, featuring multi-device sync and cloud backup. Safe,
 
 
 
